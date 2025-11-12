@@ -1,0 +1,1 @@
+<img width="4702" height="2570" alt="Mermaid Chart - Create complex, visual diagrams with text -2025-11-12-044634" src="https://github.com/user-attachments/assets/33660e2e-7dec-481f-a98a-ed51a1380985" />
